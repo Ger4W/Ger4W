@@ -2,7 +2,7 @@
 - 👀 I’m interested in... Prosperity & Freedom :) 
 - 🌱 I’m currently learning ... The most i can about Everything :O
 - 💞️ I’m looking to collaborate on ... Projects that help people have easier & better lives! #1
-- 📫 How to reach me ... ;)
+- 📫 How to reach me ... don't,  I will find you.
 
 <!---
 Ger4W/Ger4W is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
